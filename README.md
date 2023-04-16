@@ -10,7 +10,7 @@
 
 ###
 
-<img src="https://telegra.ph/file/8e46d74419e80ff367232.jpg">
+<img src="https://telegra.ph/file/8e46d74419e80ff367232.jpg" width="300" >
 
 
 ###
