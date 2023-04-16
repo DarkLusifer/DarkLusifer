@@ -10,6 +10,11 @@
 
 ###
 
+<img src="https://telegra.ph/file/8e46d74419e80ff367232.jpg">
+
+
+###
+
 <h3 align="left">👨‍💻  About Me</h3>
 
 ###
