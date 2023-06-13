@@ -2,7 +2,7 @@
 
 ###
 
-<div align="center">
+<div>
   <img height="55" src="https://camo.githubusercontent.com/8ea6b34dae7d5ef5b905f19569061d55c5afabc78250f200c0ec1bc4bdb8396e/68747470733a2f2f726561646d652d747970696e672d7376672e6865726f6b756170702e636f6d3f73697a653d33302677696474683d353030266c696e65733d48692b54686572652bf09f918b"  />
 </div>
 
@@ -17,7 +17,19 @@
 
 ###
 
-<p align="left">Nᴀᴍᴇ : ᯓ∂αяк ℓυѕιƒєяᴾᴿᴼ『🇱🇰』<br>Aɢᴇ : - - 😇<br>NɪᴄNᴀᴍᴇ : ᯓ∂αяк ℓυѕιƒєяᴾᴿᴼ『🇱🇰』<br>BɪʀTʜᴅᴀᴛᴇ : - - - -/08/27<br>Cᴏᴜɴᴛʀʏ : Sri Lanka 🇱🇰<br>HᴏᴍᴇTᴏᴡɴ : - - - 😉<br>Rᴇʟᴀᴛɪᴏɴsʜɪᴘ : With You 🌿<br>Tʜᴇ Hᴏᴘᴇ : Cyber Security 👨‍💻<br>Sᴛɪʟʟ : Learning</p>
+<p align="left"><b>𝗛𝗲𝗹𝗹𝗼 𝗚𝘂𝘆𝘀...</b> 😌🌿❤️<br>
+<br>
+<br>
+💬 Here are something about Me 😇<br>
+<br>
+𝙽𝚊𝚖𝚎 : ᴹᴿ∂αяк ℓυѕιƒєя 💔<br>
+𝙰𝚐𝚎 : - - 😀<br>
+𝙲𝚘𝚞𝚗𝚝𝚛𝚢 : 𝕊𝕣𝕚 𝕃𝕒𝕟𝕜𝕒 🇱🇰<br>
+𝚁𝚎𝚕𝚊𝚝𝚒𝚘𝚗𝚜𝚑𝚒𝚙 : With You (tg://settings) 🌿<br>
+𝙷𝚘𝚙𝚎 : 𝕊𝕥𝕚𝕝𝕝 𝕋𝕙𝕚𝕟𝕜𝕚𝕟𝕘 🧐<br>
+<br>
+🎂ωιѕн мє ση 27ᵗʰ αυg 👼<br>
+</p>
 
 ###
 
