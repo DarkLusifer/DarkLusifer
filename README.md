@@ -33,7 +33,7 @@
 
 📬 Contact me using <a href="t.me/Itz_DarkLusiferbot">@Itz_DarkLusiferbot</a> via Telegram 🪬
 
- ♨️ Follow me on <a href="https://github.com/DarkLusifer"> GitHub </a>
+ ♨️ Follow me on <a href="https://github.com/DarkLusifer"> GitHub </a> <br>
  ♨️ Follow me on <a href="https://instagram.com/itzme_mrdarklusifer"> Instagram </a> 
  
 ###
