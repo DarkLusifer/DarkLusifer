@@ -31,6 +31,11 @@
 🎂ωιѕн мє ση 27ᵗʰ αυg 👼<br>
 </p>
 
+📬 Contact me using <a href="t.me/Itz_DarkLusiferbot">@Itz_DarkLusiferbot</a> via Telegram 🪬
+
+ ♨️ Follow me on <a href="https://github.com/DarkLusifer"> GitHub </a>
+ ♨️ Follow me on <a href="https://instagram.com/itzme_mrdarklusifer"> Instagram </a> 
+ 
 ###
 
 <h3 align="left">🛠 Language and tools</h3>
