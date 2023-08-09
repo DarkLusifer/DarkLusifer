@@ -20,7 +20,7 @@
 𝗛𝗲𝗹𝗹𝗼 𝗚𝘂𝘆𝘀... ✌️💕<br><br>
 
 
-💬 Here are something about <a href="https://t.me/about_DarkLusifer">Me</a> 😁<br>
+💬 Here are something about <a href="https://t.me/about_DarkLusifer">Me</a> 😁<br><br>
 𝙽𝚊𝚖𝚎 : xxxxx 🔻<br>
 
 𝙽𝚒𝚌𝚔𝚗𝚊𝚖𝚎 : 👼 ᴹᴿDΔRҜ LUSIҒΞR 😈<br>
@@ -49,6 +49,7 @@
 ✅ Contact me on <a href="http://wa.me/settings">WhatsApp</a> <br>
 ✅ Follow me on <a href="https://twitter.com/itz_darklusifer">Twitter</a> <br>
  </p>
+ 
 ###
 
 <h3 align="left">🛠 Language and tools</h3>
