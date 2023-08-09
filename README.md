@@ -17,23 +17,23 @@
 
 ###
 <p>
-𝗛𝗲𝗹𝗹𝗼 𝗚𝘂𝘆𝘀... ✌️💕<br><br><br><br>
+𝗛𝗲𝗹𝗹𝗼 𝗚𝘂𝘆𝘀... ✌️💕<br><br>
 
 
-💬 Here are something about <a href="https://t.me/about_DarkLusifer">Me</a> 😁<br><br>
-𝙽𝚊𝚖𝚎 : xxxxx 🔻<br><br>
+💬 Here are something about <a href="https://t.me/about_DarkLusifer">Me</a> 😁<br>
+𝙽𝚊𝚖𝚎 : xxxxx 🔻<br>
 
-𝙽𝚒𝚌𝚔𝚗𝚊𝚖𝚎 : 👼 ᴹᴿDΔRҜ LUSIҒΞR 😈<br><br>
+𝙽𝚒𝚌𝚔𝚗𝚊𝚖𝚎 : 👼 ᴹᴿDΔRҜ LUSIҒΞR 😈<br>
 
-𝙰𝚐𝚎 : - - 😀<br><br>
+𝙰𝚐𝚎 : - - 😀<br>
 
-𝙲𝚘𝚞𝚗𝚝𝚛𝚢 : 𝕊𝕣𝕚 𝕃𝕒𝕟𝕜𝕒 🇱🇰<br><br>
+𝙲𝚘𝚞𝚗𝚝𝚛𝚢 : 𝕊𝕣𝕚 𝕃𝕒𝕟𝕜𝕒 🇱🇰<br>
 
-𝚁𝚎𝚕𝚊𝚝𝚒𝚘𝚗𝚜𝚑𝚒𝚙 : With <a href="tg://settings">You</a> 🌿<br><br>
+𝚁𝚎𝚕𝚊𝚝𝚒𝚘𝚗𝚜𝚑𝚒𝚙 : With <a href="tg://settings">You</a> 🌿<br>
 
-𝙷𝚘𝚙𝚎 : 𝕊𝕥𝕚𝕝𝕝 𝕋𝕙𝕚𝕟𝕜𝕚𝕟𝕘 🧐<br><br>
+𝙷𝚘𝚙𝚎 : 𝕊𝕥𝕚𝕝𝕝 𝕋𝕙𝕚𝕟𝕜𝕚𝕟𝕘 🧐<br>
 
-🎂 ωιѕн мє ση 27ᵗʰ αυg 👼<br><br><br>
+🎂 ωιѕн мє ση 27ᵗʰ αυg 👼<br><br>
 
 
 🦢 Coding Knowledge <br>
@@ -41,7 +41,7 @@
         
 🤗 Contact me using <br>
                  🌐 <a href="t.me/Itz_DarkLusiferbot">@Itz_DarkLusiferbot</a> ✍️ <br>
-                 🌐 <a href="cybershareofficial@gmail.com">itz****lusifer@gmail.com</a> <br><br><br>
+                 🌐 <a href="cybershareofficial@gmail.com">itz****lusifer@gmail.com</a> <br><br>
 
 
 ✅ Follow me on <a href="https://github.com/DarkLusifer">GitHub</a> <br>
