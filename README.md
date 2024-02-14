@@ -1,5 +1,3 @@
-<img align="center" height="65" src="https://camo.githubusercontent.com/8ea6b34dae7d5ef5b905f19569061d55c5afabc78250f200c0ec1bc4bdb8396e/68747470733a2f2f726561646d652d747970696e672d7376672e6865726f6b756170702e636f6d3f73697a653d33302677696474683d353030266c696e65733d48692b54686572652bf09f918b"  />
-
 <h1>I'm <a href="https://t.me/about_darklusifer">ᴹᴿDΔRK LUSIҒΞR</a> <img align="top" src="https://graph.org/file/5fee3073834224789ab9c.png" width="50" style="border-raduce: 50%;"> , A Developer from Sri Lanka 🇱🇰 </h1>
 
 **💬 Some info on [me](https://t.me/about_darklusifer) 😁**
@@ -34,7 +32,6 @@
 <div align="left">
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/c/c-original.svg" height="40" width="52" alt="c logo"  />
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/python/python-original.svg" height="40" width="52" alt="python logo"  />
-  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/codepen/codepen-plain.svg" height="40" width="52" alt="codepen logo"  />
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/css3/css3-original.svg" height="40" width="52" alt="css3 logo"  />
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/googlecloud/googlecloud-original.svg" height="40" width="52" alt="googlecloud logo"  />
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/github/github-original.svg" height="40" width="52" alt="github logo"  />
